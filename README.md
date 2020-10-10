@@ -1,17 +1,17 @@
 # skins
 Skins(may upload more later)
 # [# # # YaNeSerega, blyat](https://regulatorbpm.s-ul.eu/5OhW8Exw)
-![](https://imgur.com/a/XPyl1XS)
+![](https://i.imgur.com/ojdnt7D.jpg)
 <br>
 # [- - - + noobsome](https://regulatorbpm.s-ul.eu/MEfTMOIh)
-![](https://imgur.com/a/JNGn94e)
+![](https://i.imgur.com/61GtEte.jpg)
 <br>
 # [404 SkinNotFound v2](https://regulatorbpm.s-ul.eu/8TMSXnDr)
-![](https://imgur.com/a/duxsdDC)
+![](https://i.imgur.com/ARNf0GD.jpg)
 <br>
 # [cookiezi top secret skin](https://regulatorbpm.s-ul.eu/LV0TNbJH)
-![](https://imgur.com/a/xdOOENL)
+![](https://i.imgur.com/ByznFkv.jpeg)
 <br>
 # [BubbleSkin20-03-20](https://regulatorbpm.s-ul.eu/YzuTUQMm)
-![](https://imgur.com/a/CN22Xsw)
+![](https://i.imgur.com/1lu8vP6.jpg)
 <br>
