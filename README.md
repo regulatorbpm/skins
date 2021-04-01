@@ -9,7 +9,7 @@ Skins(may upload more later)
 # [404 SkinNotFound v2](https://regulatorbpm.s-ul.eu/8TMSXnDr)
 ![](https://i.imgur.com/ARNf0GD.jpg)
 <br>
-# [cookiezi top secret skin](https://regulatorbpm.s-ul.eu/LV0TNbJH)
+# [bez privat houeta](https://regulatorbpm.s-ul.eu/d4H7EBR8)
 ![](https://i.imgur.com/ByznFkv.jpeg)
 <br>
 # [BubbleSkin20-03-20](https://regulatorbpm.s-ul.eu/YzuTUQMm)
@@ -18,3 +18,5 @@ Skins(may upload more later)
 # [- colorbog - green](https://regulatorbpm.s-ul.eu/DjZuTQAC)
 ![](https://i.imgur.com/ryoeuEq.jpg)
 <br>
+# [cookiezi top secret skin](https://regulatorbpm.s-ul.eu/LV0TNbJH)
+![](https://i.imgur.com/IBiKy3Z.jpg)
