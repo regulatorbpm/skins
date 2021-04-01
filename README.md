@@ -9,6 +9,9 @@ Skins(may upload more later)
 # [404 SkinNotFound v2](https://regulatorbpm.s-ul.eu/8TMSXnDr)
 ![](https://i.imgur.com/ARNf0GD.jpg)
 <br>
+# [404 SkinNotFound blue](https://regulatorbpm.s-ul.eu/VmX0Xvvp)
+![](https://i.imgur.com/diMwMHr.jpg)
+<br>
 # [bez privat houeta](https://regulatorbpm.s-ul.eu/d4H7EBR8)
 ![](https://i.imgur.com/ByznFkv.jpeg)
 <br>
